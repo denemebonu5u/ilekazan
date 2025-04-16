@@ -1,8 +1,8 @@
-👌 DENEME BONUSU 👌
+👌 DENEME BONUSU ile KAZAN 👌
 
-# <a href="https://t.me/+0JOgru5ccMkzODNk">Yatırımsız Deneme Bonusu</a>
+# <a href="https://t.me/+0JOgru5ccMkzODNk">Yatırımsız Deneme Bonusu 🔥</a>
 # <a href="https://t.me/+0JOgru5ccMkzODNk">TIKLA VE GİRİŞ YAP</a>
-<a href="https://t.me/+0JOgru5ccMkzODNk" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/T3reXv6.webp" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://t.me/+0JOgru5ccMkzODNk" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/TeVqC.jpeg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 
  🎰 Şansını Yatırımsız Dene!
 
